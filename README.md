@@ -1,2 +1,2 @@
 ## 🐳 안녕하세요 XD
-### Welcome to My git page!
+### 꾸준히 성장하기✌
